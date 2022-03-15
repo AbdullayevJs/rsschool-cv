@@ -1,1 +1,1 @@
-Abdullayev Doston 
+Abdullayev Doston
